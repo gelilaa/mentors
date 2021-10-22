@@ -1,3 +1,3 @@
 # Planning
 
-saying any thing will help
+saying anything will help
